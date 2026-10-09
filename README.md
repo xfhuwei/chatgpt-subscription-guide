@@ -4,8 +4,6 @@
 
 **关键词：** ChatGPT会员升级、ChatGPT Plus订阅、ChatGPT Pro开通、GPT会员充值、ChatGPT升级教程、ChatGPT国内支付、ChatGPT Plus购买指南
 
-**资料核对日期：2026年10月9日**
-
 ---
 
 ### 🚀 小小AI｜ChatGPT 订阅协助 & AI 工具技术服务
